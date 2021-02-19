@@ -7,4 +7,4 @@
 - 💬 Ask me about anything at the third semester of my graduation. ¯\_(ツ)_/¯
 - 📫 How to reach me: you can send me a email at MattheusMedina@outlook.com
 - 😄 Pronouns: im happy to become part of the community and i hope to learn and maybe teach something here
-- ⚡ Fun fact: i love to play video game but im very bad at this (┬┬﹏┬┬)
+- ⚡ Fun fact: i love to play video game but im sucks at this (┬┬﹏┬┬)
